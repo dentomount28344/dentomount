@@ -1,1 +1,1 @@
-The construction of the Golden Gate Bridge in San Francisco in 1937 marked a milestone in bridge engineering, featuring a suspension design that allowed for the efficient and safe passage of vehicles over long spans.
+The introduction of the first motorways, or limited-access highways, in Europe in the 1920s and 1930s paved the way for the modern highway system, prioritizing speed, safety, and efficiency for long-distance travel.
