@@ -1,1 +1,1 @@
-The introduction of the first motorways, or limited-access highways, in Europe in the 1920s and 1930s paved the way for the modern highway system, prioritizing speed, safety, and efficiency for long-distance travel.
+The advent of bicycle travel in the late 19th century popularized the demand for smoother, paved roads, leading to increased investment in road infrastructure in urban and suburban areas.
