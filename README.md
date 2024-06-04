@@ -1,1 +1,1 @@
-Road construction and maintenance were often carried out by local communities, with laborers using simple tools like shovels, picks, and wheelbarrows to repair and improve roads.
+Innovations in road construction materials and techniques, such as the use of asphalt and concrete, emerged in the 19th century, offering more durable and weather-resistant surfaces for roads.
