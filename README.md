@@ -1,1 +1,1 @@
-Innovations in road construction materials and techniques, such as the use of asphalt and concrete, emerged in the 19th century, offering more durable and weather-resistant surfaces for roads.
+The construction of the Pan-American Highway, spanning North and South America, began in the early 20th century and remains one of the longest road networks in the world, connecting diverse landscapes and cultures across continents.
