@@ -1,1 +1,1 @@
-The 18th century saw the emergence of professional road builders and engineers who specialized in road construction and maintenance, introducing new techniques and standards for road design and management.
+The development of the first traffic signals in the early 20th century improved safety and efficiency at intersections, reducing accidents and congestion on urban roads.
