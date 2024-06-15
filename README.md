@@ -1,1 +1,1 @@
-Horse-drawn stagecoaches were a popular form of long-distance transportation on 18th-century roads, offering scheduled service between major towns and cities, albeit with cramped and uncomfortable accommodations for passengers.
+The 20th century witnessed unprecedented advancements in road infrastructure, with the widespread adoption of asphalt and concrete pavements, providing smoother and more durable surfaces for roads.
