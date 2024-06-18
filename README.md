@@ -1,1 +1,1 @@
-The 20th century witnessed unprecedented advancements in road infrastructure, with the widespread adoption of asphalt and concrete pavements, providing smoother and more durable surfaces for roads.
+The spread of telegraph lines alongside roads in the 19th century facilitated communication and commerce by enabling rapid transmission of messages and information across long distances.
