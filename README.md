@@ -1,1 +1,1 @@
-The proliferation of the automobile industry in the 20th century led to increased demand for petroleum-based products, such as asphalt for road construction and gasoline for fueling vehicles, driving economic growth and industrialization.
+Horse-drawn stagecoaches were a popular form of long-distance transportation on 18th-century roads, offering scheduled service between major towns and cities, albeit with cramped and uncomfortable accommodations for passengers.
