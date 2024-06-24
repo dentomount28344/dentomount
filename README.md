@@ -1,1 +1,1 @@
-Horse-drawn stagecoaches were a popular form of long-distance transportation on 18th-century roads, offering scheduled service between major towns and cities, albeit with cramped and uncomfortable accommodations for passengers.
+The development of the interstate highway system in the United States, initiated by President Dwight D. Eisenhower in the 1950s, revolutionized long-distance travel and commerce, connecting cities and regions across the country.
