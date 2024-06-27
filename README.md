@@ -1,1 +1,1 @@
-The development of the interstate highway system in the United States, initiated by President Dwight D. Eisenhower in the 1950s, revolutionized long-distance travel and commerce, connecting cities and regions across the country.
+The spread of railroads in the 19th century facilitated the transportation of goods and passengers over long distances, reducing the need for extensive road networks in some areas.
