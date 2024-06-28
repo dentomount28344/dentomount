@@ -1,1 +1,1 @@
-The spread of railroads in the 19th century facilitated the transportation of goods and passengers over long distances, reducing the need for extensive road networks in some areas.
+The introduction of the first motorways, or limited-access highways, in Europe in the 1920s and 1930s paved the way for the modern highway system, prioritizing speed, safety, and efficiency for long-distance travel.
