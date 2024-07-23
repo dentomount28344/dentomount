@@ -1,1 +1,1 @@
-The development of the first expressways, or controlled-access highways, in the United States in the mid-20th century provided fast and efficient travel routes for commuters and long-distance travelers alike.
+The introduction of steam-powered traction engines and early automobiles in the late 19th century posed new challenges and opportunities for road development, as these vehicles required smoother and more durable surfaces.
