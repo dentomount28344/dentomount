@@ -1,1 +1,1 @@
-The introduction of steam-powered traction engines and early automobiles in the late 19th century posed new challenges and opportunities for road development, as these vehicles required smoother and more durable surfaces.
+The 19th century saw significant improvements in road infrastructure, including the widespread adoption of macadam roads, which consisted of compacted layers of crushed stone and gravel.
