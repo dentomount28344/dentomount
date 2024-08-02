@@ -1,1 +1,1 @@
-The condition of roads varied widely depending on local maintenance efforts, with many roads in poor repair due to limited funding and resources allocated for maintenance.
+The width of 18th-century roads varied, with many being narrow and winding, particularly in rural areas, where terrain and property boundaries influenced their layout.
